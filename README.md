@@ -16,4 +16,4 @@ As long as there is respect, all is allowed.
 
 
 This installation has been made in collaboration with Knits and Notes as part of Amsterdam Dance Event.
-Info about socials, etc.
+
