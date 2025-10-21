@@ -1,5 +1,6 @@
 # Cocoon004.github.io
 Ana Maria Suso textile artist 
+
 Lilla Belso sound artist
 
 The cocoon vol.04 is the fourth in a series of installations of the same name by artist Ana Maria Suso. After multiple attempts at bridging architecture and craft in the pursuit of redefining ways of making, this iteration is a leap from the individual into the collective, touching on the theme of connection: across identities, across scenes, across senses.
